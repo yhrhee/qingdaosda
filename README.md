@@ -1,0 +1,2 @@
+# qingdaosda
+Qingdao SDA Church
